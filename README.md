@@ -1,0 +1,1 @@
+# patika_Odev_Hafta_1
